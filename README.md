@@ -15,10 +15,10 @@ I can assist you in many ways to make or develop and upgrade your <br>website or
 
 ## Contact with me
 <ul>
-<li>
-<a>instagram
-
-</a>
-  
+<li> instagram:
+<a href="https://www.instagram.com/bzzuur?igsh=bGYwbmJjNGU3NDB1&utm_source=qr">@bzzuur</a>
+</li>
+ <li> instagram:
+<a href="https://www.facebook.com/profile.php?id=100034001092087">@basheer da bagh</a>
 </li>
 </ul>
